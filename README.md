@@ -11,7 +11,7 @@
 
 - 📫 How to reach me **adityapandey18501@gmail.com**
 
-- ⚡ Fun fact **I also play chess, and drink coffee**
+- ⚡ Fun fact **I also play chess, and like to drink coffee**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
